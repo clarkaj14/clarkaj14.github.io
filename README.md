@@ -24,6 +24,6 @@ I’m seeking opportunities in **Business Analyst** or **Strategy & Operations (
 - Drive growth by combining technical skills with a customer-first mindset.
 
 ## 📫 Let’s Connect  
-- [LinkedIn](www.linkedin.com/in/aaron-clark14)  
+- [LinkedIn] www.linkedin.com/in/aaron-clark14   
 - [Email](clarkaj14@gmail.com)
 - [Phone Number](+1-(303)-506-3116) 
