@@ -25,5 +25,5 @@ I’m seeking opportunities in **Business Analyst** or **Strategy & Operations (
 
 ## 📫 Let’s Connect  
 - <a href="https://www.linkedin.com/in/aaron-clark14" target="_blank">LinkedIn</a>
-- [Email](clarkaj14@gmail.com)
+- <a href="mailto:clarkaj14@gmail.com">Email</a>
 - [Phone Number](+1-(303)-506-3116) 
